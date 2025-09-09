@@ -1,1 +1,1 @@
-# gaolaoqin.github.io
+# [gaolaoqin.github.io](https://hoo.be/dyg)
